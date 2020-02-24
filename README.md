@@ -1,1 +1,1 @@
-nothing but new try
+nothing but new try,just
